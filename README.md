@@ -1,5 +1,5 @@
 ## HAIII MINAAAAA 👋
-### gua yakin bakal ada yang bac ini
+##### gua yakin bakal ada yang baca ini
 <!--
 **SATZYOU/SATZYOU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
