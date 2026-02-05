@@ -1,5 +1,5 @@
 ## HAIII MINAAAAA 👋
-##### gua yakin bakal ada yang baca ini
+##### hai I am development and I 16 yearsold nice to meet you 🙌
 <!--
 **SATZYOU/SATZYOU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
